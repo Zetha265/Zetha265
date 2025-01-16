@@ -3,7 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gilroy&weight=700&size=40&pause=1000&color=1B03A3&width=600&height=60&lines=Hello+Po+Sainyo+:D)](https://git.io/typing-svg)
 
 </div>
-- 👀 I’m interested in living
+- 👀 I’m interested in you
 - 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me: don't
